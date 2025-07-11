@@ -26,5 +26,5 @@
 结语  
 通过正规、可靠的在线视频平台，观众可以享受高清、流畅的观看体验，同时保障个人隐私和数据安全。  
  
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/yeah433566/avrb03 )</span>
 
